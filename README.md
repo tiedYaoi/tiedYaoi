@@ -1,12 +1,13 @@
- <img width="540" height="167" alt="t2en01__fliter--dark-crimson-sepia__channel--all__mode--normal" src="https://github.com/user-attachments/assets/f896bd6f-b4d6-46b0-be62-15a0e2279191" /> 
+　<img width="510" height="167" alt="t2en01__fliter--dark-crimson-sepia__channel--all__mode--normal__fliter--purple-sepia__channel--green__mode--normal" src="https://github.com/user-attachments/assets/57d35955-c74d-48ff-8bb8-a6981cbe8479" />
  
- 　　 　　　　　 　　 <img width="135" height="955" alt="GoobArtwork__fliter--dark-crimson-sepia__channel--all__mode--normal" src="https://github.com/user-attachments/assets/7798d6ba-77cc-4b48-84b9-87535c1327ea" />
+ 　　 　　　　　 　　 <img width="169" height="663" alt="Bassie_Full_Icon__fliter--purple-sepia__channel--green__mode--normal webp (1)" src="https://github.com/user-attachments/assets/363d520c-caae-4465-9fd8-2c9960fc69db" />
                    
   
    　　 　　　　　 　vella　　　𓏼 　　jazzy　　　
 
 　　 　　　　　pansexual　　✦　　　any prns　
 
-  　　　　　be free to c+h  　　sign [colormytree](https://colormytree.me/2025/01JG39MK74PPEDCRRQXJ24TXDE) and ata :0　 　　　　　　　　
+  　　　　　be free to c+h  　　sign [colormytree](https://colormytree.me/2025/01JG39MK74PPEDCRRQXJ24TXDE) and [ATAbook(https://xai.atabook.org/):0　 　　　　　　　　
                     
- 　 　<img width="540" height="137" alt="l0org3__fliter--dark-crimson-sepia__channel--all__mode--normal" src="https://github.com/user-attachments/assets/dbf45be9-fd09-4fa4-9195-8e7f3333d9b4" />
+ 　 <img width="540" height="137" alt="l0org3__fliter--purple-sepia__channel--green__mode--normal" src="https://github.com/user-attachments/assets/5a5f4b89-d208-4c66-9b7f-2f64f80bd23c" />
+  　　 　　　　　 　
