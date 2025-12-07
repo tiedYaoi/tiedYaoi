@@ -7,7 +7,7 @@
 
 　　 　　　　　pansexual　　✦　　　any prns　
 
-  　　　　　be free to c+h  　　sign [colormytree](https://colormytree.me/2025/01JG39MK74PPEDCRRQXJ24TXDE) and [ATAbook(https://xai.atabook.org/):0　 　　　　　　　　
+  　　　　　be free to c+h  　　sign [colormytree](https://colormytree.me/2025/01JG39MK74PPEDCRRQXJ24TXDE) and [ATAbook](https://xai.atabook.org/):0　 　　　　　　　　
                     
  　 <img width="540" height="137" alt="l0org3__fliter--purple-sepia__channel--green__mode--normal" src="https://github.com/user-attachments/assets/5a5f4b89-d208-4c66-9b7f-2f64f80bd23c" />
   　　 　　　　　 　
