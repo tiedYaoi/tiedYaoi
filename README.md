@@ -1,6 +1,5 @@
 　
-　　 　　　 <img width="136" height="733" alt="Untitled822_20251209125754" src="https://github.com/user-attachments/assets/6bb3324a-b59a-4716-bc7f-4e25bcab55ba" />
-       
+　　 　<img width="338" height="736" alt="Untitled827_20251212013204" src="https://github.com/user-attachments/assets/29dc2050-aa78-41ce-8f56-7d270b029156" />
  　　 　　　　　 　　   
               
    　　 　　　　　 　vella　　　𓏼 　　jazzy　　　
@@ -9,4 +8,6 @@
 
   　　　　　be free to c+h  　　sign [colormytree](https://colormytree.me/2025/01JG39MK74PPEDCRRQXJ24TXDE) and [ATAbook](https://xai.atabook.org/):0　 　　　　　　　　
                     
- 　 
+   ________________
+
+  　　 　　　hi　 　　　　　　　there　
