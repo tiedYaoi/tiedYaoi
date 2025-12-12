@@ -1,5 +1,5 @@
 　
-　　 　<img width="338" height="736" alt="Untitled827_20251212013204" src="https://github.com/user-attachments/assets/29dc2050-aa78-41ce-8f56-7d270b029156" />
+　　 　<img width="197" height="1846" alt="Untitled826" src="https://github.com/user-attachments/assets/5709218f-a88b-4ffc-86fe-662a376742a0" />
  　　 　　　　　 　　   
               
 ##   　　 　　　　　 　vella　　　𓏼 　　jazzy　　　
