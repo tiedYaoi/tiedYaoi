@@ -1,5 +1,6 @@
 
-　　 　　　　　 　　　　　　　　 <img width="197" height="1846" alt="Untitled826" src="https://github.com/user-attachments/assets/5709218f-a88b-4ffc-86fe-662a376742a0"/>
+　　 　　　　　 　　　　　　　　  <img width="224" height="224" alt="Untitled848_20251220081438" src="https://github.com/user-attachments/assets/2d9af93e-283e-43e2-bca6-f7c4586fd01c" />
+
  　　 　　　　　 　　   
               
 ###  　　 　　　　　 　vella　　　𓏼 　　jazzy　　　
@@ -10,9 +11,9 @@
 　　 　　　[tr](https://colormytree.me/2025/01JG39MK74PPEDCRRQXJ24TXDE)              　　 　　　　　 　　　　     [at](https://xai.atabook.org/) 
 　　　
              
-  ________________
+  
   
 
 
                  
-  　　 　　　hi　 　　　　　　　there　
+  　　 　　　PlsQuICKnote　 :　　　　　i get easily scared whatever I get yelled at or forced.　　　
