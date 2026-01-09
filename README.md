@@ -1,13 +1,13 @@
 
-　　 　　　　　 　　　　　　　　  <img width="224" height="224" alt="Untitled848_20251220081438" src="https://github.com/user-attachments/assets/2d9af93e-283e-43e2-bca6-f7c4586fd01c" />
+　　 　　　　　 　　　　　　　　  ![bc3bafb603741a883005c041de380179](https://github.com/user-attachments/assets/75fc6d8a-4249-46da-9f95-6b12ebf78d94)
 
  　　 　　　　　 　　   
               
-###  　　 　　　　　 　vella　　　𓏼 　　jazzy　　　
+###  　　   　　 　　　　　　　　　vella　　　𓏼 　　jazzy　　　
 ####
-　  　　　　　pansexual　　✦　　　any prns　
+　  　　　  　　 　　　　　 　　pansexual　　✦　　　any prns　
 
-  　　　　　[cc](https://pronouns.cc/@bugGun)　 　　/　　　[str](https://i1xe.straw.page)　　　/
+  　　  　　 　　　　　 　　　[cc](https://pronouns.cc/@bugGun)　 　　/　　　[str](https://i1xe.straw.page)　　　/
 　　 　　　[tr](https://colormytree.me/2025/01JG39MK74PPEDCRRQXJ24TXDE)              　　 　　　　　 　　　　     [at](https://xai.atabook.org/) 
 　　　
              
